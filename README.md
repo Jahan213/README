@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **Problem solving, OOP, Python, Machine Learning**
 
-- 📫 How to reach me **jahan213-35@diu.edu.bd**
+- 📫 How to reach me **jahan35-768@diu.edu.bd**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
